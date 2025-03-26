@@ -1,2 +1,2 @@
-# Exerc-cios_1_8
+# Exercicios_1_8
 Dia 26/03/2025
